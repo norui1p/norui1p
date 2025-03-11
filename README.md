@@ -1,5 +1,5 @@
-## Hi there 👋
-
+## Hello, i'm Norui1p
+https://count.getloli.com/@:Norui1p
 <!--
 **norui1p/norui1p** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
